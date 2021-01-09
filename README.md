@@ -1,1 +1,0 @@
-# no-pixel-tarzi-araba-kontrol-menu
